@@ -31,4 +31,4 @@ Tomamos medidas razonables para proteger tu información personal contra el acce
 Nos reservamos el derecho de modificar esta política de privacidad en cualquier momento. Cualquier cambio será efectivo inmediatamente después de su publicación en esta página.
 
 7. Contacto
-Si tienes preguntas o preocupaciones sobre nuestra política de privacidad o prácticas, contáctanos en: [Dirección de correo electrónico].
+Si tienes preguntas o preocupaciones sobre nuestra política de privacidad o prácticas, contáctanos en: trollex.gamer.xd@gmail.com
